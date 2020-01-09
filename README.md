@@ -1,2 +1,4 @@
 # Lab_newandzan
-Hello Wittawat 61113239
+Hello Wittawat 6111323
+Hello Nathakorn
+
